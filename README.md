@@ -1,0 +1,1 @@
+# synak-privacy-policy
